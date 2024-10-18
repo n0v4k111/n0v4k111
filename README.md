@@ -1,5 +1,5 @@
-## Hi there 👋
-
+## Haiiii :3 🫀
+I am a student navigating the academic life and this README file will be updated shortly!
 <!--
 **n0v4k111/n0v4k111** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
